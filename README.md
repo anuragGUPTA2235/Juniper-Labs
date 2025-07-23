@@ -18,8 +18,6 @@
 
 
 
-![Uploading Screenshot 2025-07-08 at 4.26.10 PM 1.png…]()
-
 
 
 
